@@ -14,4 +14,4 @@ Analytics and BI professional with intellectual curiosity adept at leading teams
 
 ## 📫 How to Reach Me
 
-- LinkedIn: (www.linkedin.com/in/seanbrooks5000/)
+- LinkedIn: [Sean Brooks] (www.linkedin.com/in/seanbrooks5000/)
